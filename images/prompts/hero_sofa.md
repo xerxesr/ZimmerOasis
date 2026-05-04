@@ -1,0 +1,1 @@
+Modern living room sofa completely covered in lush green moss on all surfaces except the base, 10cm gap between floor and moss, organic rounded shapes, soft curves, light oak and linen textures, airy modern interior, soft morning sun --ar 16:9

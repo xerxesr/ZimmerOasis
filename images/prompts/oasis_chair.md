@@ -1,0 +1,1 @@
+A deep lounge chair where the entire upper section, including the seat and backrest cushions, is completely covered in a seamless layer of dense, vibrant green moss, the moss structure is separated from the light oak feet by a visible thin black metal spacer, 10cm floor clearance, soft natural window light --ar 4:5

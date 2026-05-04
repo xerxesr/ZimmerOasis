@@ -1,0 +1,1 @@
+Top view of a signature white Modular Side Table, the wooden table top is replaced with a flat, low-profile living carpet moss surface, a visible 1cm shadow gap separates the moss from the white table legs, minimalist and clean aesthetic --ar 1:1

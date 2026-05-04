@@ -1,0 +1,1 @@
+Modern Modular Picture Frame in light birch wood hanging on a white gallery wall, the physical frame contains a three-dimensional landscape of vibrant green living moss instead of a photo, a thin architectural black spacer separates the moss from the wooden frame, soft gallery spotlighting --ar 4:5

@@ -1,0 +1,1 @@
+Rounded organic sofa with living moss surface, the moss is suspended within a thin perimeter frame with a visible 1cm shadow gap separating it from the light oak base, the moss never touches the wooden legs, 10cm clearance from the floor, soft curves, 3-seater, modern Scandinavian design, bright studio lighting --ar 16:9

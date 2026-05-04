@@ -1,0 +1,1 @@
+Luxury penthouse interior with a large "ZimmerOasis" moss sofa in the center, floor-to-ceiling windows with a breathtaking panoramic view of a modern skyscraper skyline at sunset, golden hour lighting, warm glow, dramatic shadows, dark walnut and marble textures --ar 16:9

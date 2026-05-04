@@ -1,0 +1,1 @@
+Side view of a classic Modular Wingchair in dark grey fabric, the entire outer back shell and side "wings" are replaced by lush green living moss panels, a thin black architectural frame separates the moss from the grey fabric, a visible shadow gap ensures no direct contact between materials, 10cm floor clearance showing the dark wood legs --ar 4:5

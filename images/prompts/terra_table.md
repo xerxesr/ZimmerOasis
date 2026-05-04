@@ -1,0 +1,1 @@
+Modern coffee table with a thick floating glass top supported by a sleek black metal frame, open sides with no glass walls, revealing a flat, low-profile landscape of vibrant green living carpet moss underneath the glass, bright modern living room --ar 1:1

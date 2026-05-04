@@ -1,0 +1,1 @@
+Elegant chaise lounge where the entire upper section, including the seating cushion and large curved backrest, is completely covered in a seamless, vibrant green moss, 10cm gap between moss and floor showing a dark walnut structural base, moody evening interior lighting, wide shot filling the 16:9 frame --ar 16:9
